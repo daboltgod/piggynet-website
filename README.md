@@ -1,7 +1,7 @@
 # Piggy Network Website
 **Owner (ScyDevs (You can also call me "Bolt"))**
 
-Currently being revamped! Check back later for an updated version!
+Currently being revamped by BestCodrEver :D! Check back later for an updated version!
 
 **INCOMPLETE!!!**
 
